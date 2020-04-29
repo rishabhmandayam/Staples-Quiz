@@ -1,2 +1,2 @@
 # Staples-Quiz
-Made by the Peen Gang
+Made by the Rishabh's Peen
