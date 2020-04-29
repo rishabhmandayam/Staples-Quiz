@@ -1,4 +1,4 @@
 # Staples-Quiz
 
-A place where Rishabh's head imagines vast landscapes with rainbow trees
-Frothy coniferous peen trees and little testical bushes
+TBH I don't know what this project is. Kinda figuring it out as we go.
+Is that appropriate Rishabh?
